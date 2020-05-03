@@ -1,0 +1,2 @@
+# minoooo
+just anther repository
